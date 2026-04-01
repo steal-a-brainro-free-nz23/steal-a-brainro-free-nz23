@@ -1,4 +1,4 @@
-
+Free hidd Scripts for steal a brainrot - no-cd and god brings you the best free scripts for steal a brainrot, featuring no-cd and god. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
